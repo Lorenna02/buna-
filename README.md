@@ -1,3 +1,0 @@
-# buna-
-
-Ma numesc Lorena!
